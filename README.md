@@ -1,0 +1,1 @@
+# wydajn--okto-komputerow--maszyn-
